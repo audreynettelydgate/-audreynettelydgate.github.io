@@ -1,2 +1,2 @@
-# -audreynettelydgate.github.io
+# audreynettelydgate.github.io
 Audreynette's Personal Webpage☆
